@@ -87,7 +87,7 @@ Explore the official ADK documentation:
 
 Need help or want to connect?
 
-Join me, Search on google "Abhsiehk2f24"
+Join me, Search on google "Abhishek2f24"
 
 ---
 
